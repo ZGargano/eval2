@@ -6,3 +6,4 @@ i play trumpet
 i'm a sergeant
 i'm in foxtrot
 Stadler, Griffin, Baxter
+they are my
