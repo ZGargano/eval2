@@ -4,3 +4,4 @@ i am zach
 i hate pie
 i play trumpet
 i'm a sergeant
+i'm in foxtrot
